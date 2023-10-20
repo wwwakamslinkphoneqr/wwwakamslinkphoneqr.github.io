@@ -1,0 +1,1 @@
+# wwwakamslinkphoneqr.github.io
